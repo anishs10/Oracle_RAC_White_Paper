@@ -1,0 +1,1 @@
+# Oracle_white_paper
